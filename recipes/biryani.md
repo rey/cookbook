@@ -39,7 +39,7 @@ much water? Soggy biryani. Too little water? Burnt biryani. Again, give it a ver
 
 ## Step 2: The Rice (and onion)
 
-The idea here is that you want to *half cook*. The rice should still be uncooked and hard once you're done. 
+The idea here is that you want to rice to absorb a bunch of water. The rice should still be uncooked and kinda hard once you're done. 
 
 1. Wash the rice.
 2. Add to a pan with enough water to just cover the rice, maybe a touch more.
