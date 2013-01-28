@@ -44,7 +44,7 @@ The idea here is that you want to half cook the rice. Emphasis on the half cook.
 1. Wash the rice.
 2. Add to a pan with enough water to just cover the rice, maybe a touch more.
 3. Add the cardamom seed, cinnamon stick and saffron.
-4. Bring to boil and then lower the heat immediately then allow to simmer.
+4. Bring to boil and then lower the heat immediately and allow to simmer.
 5. As soon as the water has been absorbed remove the rice from the heat. You need to keep an eye on 
 it.
 6. The rice should still be uncooked and hard.
