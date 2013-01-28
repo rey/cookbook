@@ -39,7 +39,7 @@ much water? Soggy biryani. Too little water? Burnt biryani. Again, give it a ver
 
 ## Step 2: The Rice (and onion)
 
-The idea here is that you want to half cook the rice. Emphasis of the half cook.
+The idea here is that you want to half cook the rice. Emphasis on the half cook.
 
 1. Wash the rice.
 2. Add to a pan with enough water to just cover the rice, maybe a touch more.
