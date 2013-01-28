@@ -1,7 +1,5 @@
 # My Dad's biryani
 
-![Alt text](images/biryani/biryani.jpg)
-
 ## About
 
 I grew up with my Dad making this fantastic biryani. He said it wasn't something that could readily translate to a list with a bunch of instructions and measurements but this is the recipe he gave me and it gave good results.
