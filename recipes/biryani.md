@@ -39,7 +39,7 @@ much water? Soggy biryani. Too little water? Burnt biryani. Again, give it a ver
 
 ## Step 2: The Rice (and onion)
 
-The idea here is that you want to half cook the rice. Emphasis on the half cook.
+The idea here is that you want to *half cook*. The rice should still be uncooked and hard once you're done. 
 
 1. Wash the rice.
 2. Add to a pan with enough water to just cover the rice, maybe a touch more.
@@ -47,8 +47,7 @@ The idea here is that you want to half cook the rice. Emphasis on the half cook.
 4. Bring to boil and then lower the heat immediately and allow to simmer.
 5. As soon as the water has been absorbed remove the rice from the heat. You need to keep an eye on 
 it.
-6. The rice should still be uncooked and hard.
-7. Whilst the rice is cooking slice the onion thinly and fry until brown.
+6. Whilst the rice is cooking slice the onion thinly and fry until brown.
 
 ## Step 3: Layer
 
