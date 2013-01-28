@@ -2,9 +2,7 @@
 
 ## About
 
-I grew up with my Dad making this fantastic biryani. He always said it wasn't something that you 
-could translate to a list with a bunch of instructions and measurements but this is the recipe he 
-gave me and gave good results.
+I grew up with my Dad making this fantastic biryani. He said it wasn't something that could readily translate to a list with a bunch of instructions and measurements but this is the recipe he gave me and it gave good results.
 
 I imagine I'll tweak this as I make it more myself -- I consider this Mark I.
 
@@ -27,7 +25,7 @@ I imagine I'll tweak this as I make it more myself -- I consider this Mark I.
 
 ## Step 1: The Marinade
 
-This is a marinade that is best suited to being left overnight for best flavour although if you're 
+This is a marinade that is best suited to being left overnight for maximum flavour although if you're 
 cooking in the evening you can probably get away with doing it in the morning.
 
 1. Add the cumin powder, 2 cardamom seeds, 1 stick of cinnamon, ginger, coriander, yoghurt and olive 
