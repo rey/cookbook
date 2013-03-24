@@ -28,7 +28,7 @@ I imagine I'll tweak this as I make it more myself -- I consider this Mark I.
 This is a marinade that is best suited to being left overnight for maximum flavour although if you're 
 cooking in the evening you can probably get away with doing it in the morning.
 
-1. Add the cumin powder, 2 cardamom seeds, 1 stick of cinnamon, ginger, coriander, yoghurt and olive 
+1. Add the cumin powder, 2 cardamom seeds, 1 stick of cinnamon, garlic, ginger, coriander, yoghurt and olive 
 oil to a decent sized pan. Season with salt and pepper.
 2. Give it a very good mix.
 3. Add the lamb and the potatoes and give it another very good mix until everything is coated 
