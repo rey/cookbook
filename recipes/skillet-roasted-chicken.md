@@ -2,7 +2,7 @@
 
 ## About
 
-Whilst internetting one day I came across an article by J. Kenji L&oacute;pez-Alt about cast iron pans. To cut a long story short, I invested [in one](http://www.amazon.co.uk/gp/product/B00006JSUA) and love it. I've roasted many a chicken in my skillet, mostly based on [this technique](http://www.nytimes.com/2012/05/09/dining/a-new-breed-of-roast-chicken-cast-iron-seared.html). That said, here is how I do mine.
+Whilst internetting one day I came across [an article by J. Kenji L&oacute;pez-Alt about cast iron pans](http://www.seriouseats.com/2010/06/how-to-buy-season-clean-maintain-cast-iron-pans.html). To cut a long story short, I invested [in one](http://www.amazon.co.uk/gp/product/B00006JSUA) and love it. I've roasted many a chicken in my skillet, mostly based on [this technique](http://www.nytimes.com/2012/05/09/dining/a-new-breed-of-roast-chicken-cast-iron-seared.html). That said, here is how I do mine.
 i
 
 ## Ingredients
