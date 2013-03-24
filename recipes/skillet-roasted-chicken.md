@@ -34,7 +34,9 @@ i
 
 [^1]:
 I find this chicken weight fits nicely in my skillet with a bit of extra room. Your mileage may vary.
+
 [^2]:
 I have no idea why I do this but I find the chicken tastes nicer than it does if I don't do it.
+
 [^3]:
 Push the splayed chicken legs against when pan so they sear. Careful! The skillet gets very hot.
