@@ -2,8 +2,9 @@
 
 ## About
 
-Whilst internetting one day I came across [an article by J. Kenji L&oacute;pez-Alt about cast iron pans](http://www.seriouseats.com/2010/06/how-to-buy-season-clean-maintain-cast-iron-pans.html). To cut a long story short, I invested [in one](http://www.amazon.co.uk/gp/product/B00006JSUA) and love it. I've roasted many a chicken in my skillet, mostly based on [this technique](http://www.nytimes.com/2012/05/09/dining/a-new-breed-of-roast-chicken-cast-iron-seared.html). That said, here is how I do mine.
-i
+Whilst internetting one day I came across [an article by J. Kenji L&oacute;pez-Alt about cast iron pans](http://www.seriouseats.com/2010/06/how-to-buy-season-clean-m    aintain-cast-iron-pans.html). To cut a long story short, I invested [in one](http://www.amazon.co.uk/gp/product/B00006JSUA) and love it.¬
+
+I've roasted many a chicken based on [this technique](http://www.nytimes.com/2012/05/09/dining/a-new-breed-of-roast-chicken-cast-iron-seared.html) and that said, here is how I do mine.
 
 ## Ingredients
 
@@ -19,7 +20,7 @@ i
 0. Check the chicken fits in the skillet.
 1. Splay the chicken's legs so to spread eagle them.
 2. Take 2 cloves of the crushed garlic and place them where you made the cut to splay the chicken[^2].
-3. Stick the bunch of thyme, bay leaves and other 2 cloves of garlic in the chicken cavity.
+3. Stick the bunch of thyme, bay leaves and other 2 cloves of the crushed garlic in the chicken cavity.
 
 ## Step 2: Cook the chicken!
 
