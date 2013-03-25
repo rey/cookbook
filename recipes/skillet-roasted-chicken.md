@@ -1,4 +1,4 @@
-# Skillet Roasted Chicken
+# Skillet roasted chicken
 
 ## About
 
