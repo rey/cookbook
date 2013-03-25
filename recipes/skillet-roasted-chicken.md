@@ -17,7 +17,7 @@ I own [a cast iron skillet](http://www.amazon.co.uk/gp/product/B00006JSUA) and [
 
 0. Check the chicken fits in the skillet.
 1. Splay the chicken's legs so to spread eagle them.
-2. Take 2 cloves of the crushed garlic and place them where you made the cut to splay the chicken[^2].
+2. Take 2 cloves of the crushed garlic and place them where you made the cuts to splay the chicken[^2].
 3. Stick the bunch of thyme, bay leaves and other 2 cloves of the crushed garlic in the chicken cavity.
 
 ## Step 2: Cook the chicken!
