@@ -2,9 +2,9 @@
 
 ## About
 
-Whilst internetting one day I came across [an article by J. Kenji L&oacute;pez-Alt about cast iron pans](http://www.seriouseats.com/2010/06/how-to-buy-season-clean-m    aintain-cast-iron-pans.html). To cut a long story short, I invested [in one](http://www.amazon.co.uk/gp/product/B00006JSUA) and love it.¬
+I own [a skillet](http://www.amazon.co.uk/gp/product/B00006JSUA) and [it's awesome](http://www.seriouseats.com/2010/06/how-to-buy-season-clean-maintain-cast-iron-pans.html).
 
-I've roasted many a chicken based on [this technique found on The NYT](http://www.nytimes.com/2012/05/09/dining/a-new-breed-of-roast-chicken-cast-iron-seared.html) and that said, here is how I do mine.
+I've roasted many a chicken based on [this technique found on the NYT](http://www.nytimes.com/2012/05/09/dining/a-new-breed-of-roast-chicken-cast-iron-seared.html) and that said, here is how I do mine.¬   
 
 ## Ingredients
 
