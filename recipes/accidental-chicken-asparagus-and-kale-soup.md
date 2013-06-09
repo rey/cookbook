@@ -29,5 +29,5 @@ I intended to make a stock out of random ingredients that needed to be cooked, h
 
 ## Step 2: Add all the things
 
-1. In a large pan, add the chicken, kale, asparagus, onion, herbs, garlic, chilli and the stock cube.
+1. In a large pan, add the chicken, kale, asparagus, onion, herbs, garlic, chilli, the stock cube and the chopped tomatoes.
 2. Let it simmer for 2 hours or so with the lid on until the chicken is lovely and soft -- it should break apart with little resistance.
