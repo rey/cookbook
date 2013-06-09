@@ -19,6 +19,7 @@ I intended to make a stock out of random ingredients that needed to be cooked, h
 * Garlic (5 cloves, finely chopped)
 * Dried red chilli (1)
 * Vegetable stock cube
+* Tin of chopped tomatoes (1/2 a tin)
 
 
 ## Step 1: Prepare the chicken
