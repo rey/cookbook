@@ -2,7 +2,7 @@
 
 ## About
 
-I intended to make a stock out of random ingredients that needed to be cooked, however, I accidently kept added bits and pieces until it was more a soup than a stock. It's worth noting that when I made this, it had to be blended and sieved because the asparagus was too large for a soup. Ideally this won't be the case unless that's how you roll with soup.
+I intended to make a stock out of random ingredients that needed to be cooked, however, I accidently kept added bits and pieces until it was more a soup than a stock. It's worth noting that when I made this, it had to be blended and sieved because the asparagus was too large for a soup. Ideally this won't be the case unless that's how you roll.
 
 ## Ingredients
 
