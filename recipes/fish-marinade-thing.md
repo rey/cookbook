@@ -4,7 +4,7 @@
 
 At home I eat a fair amount of meat which isn't particular good for you. I'm trying to wean myself off by eating more delicious fish.
 
-Here is a recipe I invented which for the BBQ but imagine would work just ask well in the oven.
+Here is a recipe I invented for the BBQ but imagine would work just ask well in the oven.
 
 ## Ingredients
 
