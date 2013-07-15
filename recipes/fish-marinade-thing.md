@@ -36,5 +36,4 @@ At home I eat a fair amount of meat which isn't particular good for you. I'm try
 I think I used more than an inch of ginger when I made this but I'm loving the ginger at the moment so probably went a bit overboard.
 
 [^2]:
-Could you put them in one of those [fish grill things](http://www.amazon.co.uk/BBQ-Master-Fish-Basket/dp/B0030BN0GM/)? Probably, but I'm not that fancy
-
+Could you put them in one of those [fish grill things](http://www.amazon.co.uk/BBQ-Master-Fish-Basket/dp/B0030BN0GM/)? Probably, but I'm not that fancy.
