@@ -29,7 +29,7 @@ If you're starting with fresh meat then brown beforehand.
 1. Take a decent sized pan and fry the onions on a medium heat until golden, add the garlic and ginger and fry for a couple of minutes.
 2. Add the spices and fry for another couple of minutes. Keep stirring! It'll make a delicious curry paste thing.
 3. Add the passata and a splodge of tomato purée. Stir well.
-4. Add half a cup of water and the rogue chilli followed by the meat. Stir that all up and cook slowly[^1] until the meat is cooked and soft.
+4. Add half a cup of water and the rogue chilli followed by the meat. Stir that all up and cook slowly[^1] until the meat has cooked through and is soft.
 5. Once the curry is cooked, add some lovely chopped coriander.
 
 [^1]:
