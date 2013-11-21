@@ -12,10 +12,10 @@ This is a cheeky marinade that I threw together for some turkey steaks that had 
 * Olive oil (a generous slug)
 * Lime (1, juiced)
 * Bourbon (a capful)
-* Brown sugar (a teaspoon, maybe a little less)
+* Brown sugar (1 tsp, maybe a little less)
 * Garlic (5/6 cloves, crushed)
 * Home made pickled onions (3, finely sliced) or you could use shallots
-* Dried mixed herbs
+* [Dried mixed herbs](http://en.wikibooks.org/wiki/Cookbook:Mixed_Herbs) (1 tsp)
 * Salt + pepper
 
 ## Prepare the marinade
