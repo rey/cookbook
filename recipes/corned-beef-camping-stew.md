@@ -1,4 +1,4 @@
-# Camping corned beef stew
+# Corned beef camping stew
 
 ## About
 
