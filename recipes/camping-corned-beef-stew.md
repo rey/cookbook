@@ -1,10 +1,10 @@
-# Turkey steak Marinade
+# Camping corned beef stew
 
 ## About
 
-I wanted to create a no-fuss stew that could be made without the need for fresh meat. In this instance I'm using corned beef and this recipe will feed 2/3 hungry folk.
+I wanted to create a no-fuss stew that could be made without the need for fresh meat. I'm using corned beef and this recipe will feed 2/3 hungry folk.
 
-Also the instructions are written as if you at your camp so I can print it out at a later date.
+I'm really happy with how this turned out, you should eat this outdoors on a cool evening with crusty bread.
 
 ## Ingredients
 
