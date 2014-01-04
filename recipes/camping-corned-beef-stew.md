@@ -24,6 +24,7 @@ I'm really happy with how this turned out, you should eat this outdoors on a coo
 * Tomato purée (a good splodge)
 * Fresh thyme (a bunch, tied as a bundle)
 * Bay leaf (1)
+* Parsley (half full, chopped)
 * Salt + pepper
 * Optional: red wine ( a glug)
 
@@ -39,7 +40,7 @@ I'm really happy with how this turned out, you should eat this outdoors on a coo
 8. Once the mixture has reached that sticky consistency, add the corned beef and a glug of Worcestershire sauce. Stir well and cover for 5 minutes
 9. Add a good splodge of tomato purée, a tin of tomatoes, a can of water, a glug of balsamic vinegar and the carrots and potatoes. If you have any red wine stick that in, too
 10. Season with salt and pepper
-11. Whack in the bundle of thyme and bay leaf, stir gently and cover
+11. Whack in the bundle of thyme, bay leaf, parsley. Stir gently then cover
 
 Simmer until the vegetables have cooked through -- I ended up reducing the stew before serving to thicken and concentrate the flavour.
 
