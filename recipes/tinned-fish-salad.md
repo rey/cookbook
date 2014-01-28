@@ -9,7 +9,7 @@ This is a cheeky salad that I eat with toast. It's quick and delicious!
 * Tinned fish, ideally sardine or mackerel
 * Red onion, medium, diced
 * Tomato, medium, diced
-* Mixed pickles, diced
+* Mixed pickles, about the same amount as half a tomato, diced
 * Capers in brine, 2 tsp
 * Olive oil, a glug
 * Balsamic vinegar, very small dash
