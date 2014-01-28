@@ -1,5 +1,7 @@
 # Corned beef camping stew
 
+![Corned beef camping stew](http://farm3.staticflickr.com/2881/11758803213_01915b1353.jpg)
+
 ## About
 
 I wanted to create a no-fuss stew that could be made without the need for fresh meat. I'm using corned beef and this recipe will feed 2/3 hungry folk.
