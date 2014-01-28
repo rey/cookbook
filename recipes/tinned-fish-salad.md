@@ -1,5 +1,7 @@
 # Tinned fish salad
 
+![Tinned fish salad](http://farm6.staticflickr.com/5481/12083617083_1403660ea8.jpg)
+
 ## About
 
 This is a cheeky salad that I eat with toast. It's quick and delicious!
