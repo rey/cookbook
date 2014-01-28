@@ -26,7 +26,7 @@ I'm really happy with how this turned out, you should eat this outdoors on a coo
 * Bay leaf (1)
 * Parsley (half full, chopped)
 * Salt + pepper
-* Optional: red wine ( a glug)
+* Optional: red wine (a glug)
 
 ## Instructions
 
