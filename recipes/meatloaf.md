@@ -34,5 +34,5 @@ I adapted this recipe from a generic one I found on the internet. That explains 
 5. Spoon the delicious mixture into a nonstick loaf tin. Put it aside to settle for a bit whilst you...
 6. Take a small pan, tip in the rest of the tin of tomatoes, a good splodge of tomato purée and a squirt of tomato ketchup. Chuck in some Worcester sauce for good measure and put on a low, low heat.
 7. Stick the meat loaf in the oven. I found it took an hour to get to an internal temperature of 70°C which is what you're after. Keep an eye on it, though.
-8. After you're at 70°C, remove from the oven, spoon the tomato sauce evenly over the loaf. Crack some black pepper over the sauce then return to the oven for 10 minutes.
+8. After you're at 70°C, remove from the oven, spoon the tomato sauce evenly over the loaf. Crack some black pepper over it then return to the oven for 10 minutes.
 9. Remove from the oven and leave to rest for 5 minutes then put in face.
