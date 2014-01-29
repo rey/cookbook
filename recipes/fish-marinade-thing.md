@@ -1,5 +1,7 @@
 # Fish marinade thing
 
+![Fish marinade thing](http://farm3.staticflickr.com/2847/9285109002_900658ba0e.jpg)
+
 ## About
 
 At home I eat a fair amount of meat which isn't particular good for you. I'm trying to wean myself off by eating more delicious fish. Here is a recipe I invented which for the barbecue but imagine would work just as well in the oven.
