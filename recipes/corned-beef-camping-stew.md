@@ -21,7 +21,7 @@ I'm really happy with how this turned out, you should eat this outdoors on a coo
 * Worcestershire sauce (a glug)
 * Balsamic vinegar (a glug)
 * Cumin (0.5 tsp)
-* Paprika (1 tps)
+* Paprika (1 tsp)
 * Tin of chopped tomatoes
 * Tomato purée (a good splodge)
 * Fresh thyme (a bunch, tied as a bundle)
