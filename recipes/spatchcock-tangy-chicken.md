@@ -39,6 +39,7 @@ and a cast iron skillet for the cooking.
 1. Take your skillet and throw in the potatoes and carrots, place the chicken on top ensuring there are no limbs hanging out the edges of the pan.
 2. Throw some freshly ground pepper on there because #yolo.
 3. Put the skillet in the middle shelf in your oven for 20 minutes then turn it down to 200°C.
+4. Cook for 45 minutes to 1 hour.
 
 ## Step 3: Make the glaze
 
