@@ -8,7 +8,7 @@ This recipe is the base version I'd imagine.
 
 ## Ingredients
 
-* Tomatoes (3, diced)
+* Tomatoe (3, diced)
 * Garlic (3 cloves, halved lengthways then sliced super fine)
 * Coriander (a handful, chopped fine)
 * Capers (pickled, 1 tbsp)
