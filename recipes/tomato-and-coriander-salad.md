@@ -2,9 +2,9 @@
 
 ## About
 
-This isn't exactly rocket science, but I make it quite fairly regularly and quite often throw other things in it.
+I make this salad  fairly regularly and often throw other things in it.
 
-This recipe is the base version I'd imagine.
+TODO: Remember to take a photo before I eat all of the salad.
 
 ## Ingredients
 
