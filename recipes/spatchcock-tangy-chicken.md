@@ -1,4 +1,4 @@
-# Spatchcock Tangy Chicken
+# Spatchcock tangy chicken
 
 ![Spatchcock Tangy Chicken](https://c4.staticflickr.com/4/3936/15263988928_90dc99cb6f.jpg)
 
