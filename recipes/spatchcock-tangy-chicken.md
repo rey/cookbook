@@ -35,7 +35,7 @@ and a cast iron skillet for the cooking.
 
 ## Step 2: Cook the chicken
 
-1. Preheat your oven at 220°C.
+1. Preheat your oven to 220°C.
 2. Add a glug of olive oil to your skillet then put it in the oven to preheat (it'll take about 10/15 minutes).
 2. Take your skillet and throw in the potatoes and carrots, place the chicken on top ensuring there are no limbs hanging out the edges of the pan.
 3. Throw some freshly ground pepper on there because #yolo.
