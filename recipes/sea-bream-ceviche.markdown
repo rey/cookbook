@@ -23,9 +23,9 @@ Recommend serving with slices of toasted ciabatta.
 ## Instructions
 
 1. Squeeze your limes into a decent-sized bowl, making sure you get as much of the juice as possible
-2. Throw in the red chilli, hot sauce[1] and season with salt and pepper. Give it a good stir and put in the fridge[2] whilst you...
-3. Prepare the sea bream fillets[3].
-4. Add the sea bream to the marinade, followed by the coriander[4].
+2. Throw in the red chilli, hot sauce[^1] and season with salt and pepper. Give it a good stir and put in the fridge[^2] whilst you...
+3. Prepare the sea bream fillets[^3].
+4. Add the sea bream to the marinade, followed by the coriander[^4].
 5. Give the mixture a good, gentle stir then cover and stick in the fridge for half an hour, stirring again halfway through.
 
 [^1]: Hot sauce gives the marinade a bit more body.
