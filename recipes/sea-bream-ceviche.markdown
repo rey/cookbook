@@ -1,4 +1,4 @@
-# Sea bream Ceviche
+# Sea bream ceviche
 
 ![Sea bream Ceviche](https://c1.staticflickr.com/1/287/18995646066_77a814aba9.jpg)
 
