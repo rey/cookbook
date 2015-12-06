@@ -35,7 +35,7 @@ Serve with bread, potatoes or rice.
 4. Add the chopped tomatoes, gammon stock, lime juice, coriander, parsley, spring onion, bay leaf and salt + pepper and give it a good stir
 5. Let that simmer for about 15/20 minutes, your nose will tell you when it's done
 6. Take out the bay leaf!
-7. Blend until smooth
-8. Add the bay leaf and bring back to simmer for another 10 minutes
+7. Blend until smooth. If at this point it looks a bit thick, then add some vegetable stock depends how thick you like your stew.
+8. Put the the bay leaf back in and bring back to simmer for another 10 minutes
 9. Add the fish and prawns
 10. Simmer until the fish and prawns have cooked
