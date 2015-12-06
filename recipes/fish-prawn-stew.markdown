@@ -1,6 +1,6 @@
 # Fish prawn strew
 
-![Fish prawn stew](add.jpg)
+![Fish prawn stew](https://c2.staticflickr.com/6/5703/22939817253_22acddcb89.jpg)
 
 ## About
 
