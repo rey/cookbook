@@ -18,7 +18,7 @@ Wings I made for lunch club.
 * Garlic (4 cloves, minced)
 * Worcestershire sauce (a decent glug)
 * Tomato ketchup (a decent squirt)
-* Fresh lime (juiced)
+* Fresh lime (2, juiced)
 * Balsamic vinegar (a glug)
 * Fresh ginger (juiced)
 * Tabasco (couple of shakes)
