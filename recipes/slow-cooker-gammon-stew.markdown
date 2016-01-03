@@ -9,8 +9,8 @@ This is a stew for a slow cooker and a gammon.
 ## Ingredients
 
 * Gammon joint (700g)
-* Carrot (400g, chopped)
-* Potato (500g, chopped)
+* Carrot (400g, peeled + chopped)
+* Potato (500g, peeled + chopped)
 * Bell pepper  (3, chopped)
 * Large onion (1, diced)
 * Red chilli, (1, diced)
