@@ -8,7 +8,7 @@ Wings I made for lunch club.
 
 ## Ingredients
 
-* Chicken wings (20)
+* Chicken wings (1 kg)
 * Red onion (1, minced)
 * Olive oil (a decent glug)
 * Paprika (1 tsp)
