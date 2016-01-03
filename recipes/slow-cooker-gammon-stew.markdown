@@ -27,4 +27,5 @@ This is a stew for a slow cooker and a gammon.
 1. Rub your favourite spices into the gammon joint and brown in a hot pan, set aside.
 2. Throw everything apart from the gammon and vegetable stock into the slow cooker and give it a good mix with your hands.
 3. Nestle the gammon joint in the middle of the vegetables and add the vegetable stock so its _just_ covering the contents.
-4. Cook for about 6 hours.
+4. Cook for about 6-8 hours.
+5. Once it's done I like to take the joint out and shred it, then stir back in.
