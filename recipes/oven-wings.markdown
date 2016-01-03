@@ -27,5 +27,5 @@ Wings I made for lunch club.
 ## Instructions
 
 1. Combine all the ingredients in a box that you can seal.
-2. Mix every now and then (or do what I did and just turn it upside down and stick it back in the fridge).
+2. Mix every now and then (or do what I did and just turn the box upside down and stick it back in the fridge).
 3. Stick in the oven at 180 degrees Celsius and turn every 15 minutes.
