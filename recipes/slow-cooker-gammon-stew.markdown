@@ -16,8 +16,8 @@ This is a stew for a slow cooker and a gammon.
 * Red chilli, (1, diced)
 * Coriander (handful, chopped)
 * Parsley (handful, chopped)
-* Tomato pureé (a decent squirt)
-* Harissa (a decent squirt)
+* Tomato pureé (a squirt)
+* Harissa (a squirt)
 * Bay leaf (4)
 * Dried mixed herbs (1 tsp)
 * Enough vegetable stock to cover the contents
