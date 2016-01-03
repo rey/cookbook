@@ -18,6 +18,8 @@ This is a stew for a slow cooker and a gammon.
 * Parsley (handful, chopped)
 * Tomato pureé (a squirt)
 * Harissa (a squirt)
+* Olive oil (a drizzle)
+* Worcestershire sauce (a couple of shakes)
 * Bay leaf (4)
 * Dried mixed herbs (1 tsp)
 * Enough vegetable stock to cover the contents
