@@ -13,7 +13,7 @@ This is a stew for a slow cooker and a gammon.
 * Potato (500g, peeled + chopped)
 * Bell pepper  (3, chopped)
 * Large onion (1, diced)
-* Red chilli, (1, diced)
+* Red chilli, (1, deseeded + diced)
 * Coriander (handful, chopped)
 * Parsley (handful, chopped)
 * Tomato pureé (a squirt)
