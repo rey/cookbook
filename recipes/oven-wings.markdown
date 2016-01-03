@@ -9,6 +9,7 @@ Wings I made for lunch club.
 ## Ingredients
 
 * Chicken wings (12)
+* Red onion (1, minced)
 * Olive oil (a decent glug)
 * Paprika (1 tsp)
 * Cumin (1 tsp)
